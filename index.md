@@ -8,3 +8,5 @@ I am unsure what to write here. But I just use the space I have as I need to get
 
 My Characters said
 > I am so hot, the sun is afraid of me.
+
+<img src="https://live.staticflickr.com/3925/14218019828_4f7a640d79_b.jpg"/>
