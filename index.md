@@ -5,3 +5,6 @@ I am unsure what to write here. But I just use the space I have as I need to get
 * loves fried onions
 * loves everything that is sweet
 * loves everything that is salty
+
+My Characters said
+> I am so hot, the sun is afraid of me.
